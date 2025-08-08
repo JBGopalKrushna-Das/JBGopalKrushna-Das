@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JBGopalKrushna-Das
 - 👀 I’m interested in coading 
-- 🌱 I’m currently learning B.Sc.(ITM)
+- 🌱 I’m currently learning B.Sc.(ITM) 2nd year
 - 💞️ I’m looking to collaborate on sustainable engineering projects
 - 📫 How to reach me email- gopaldas9439@gmail.com
 - 😄 Pronouns: He/Him
